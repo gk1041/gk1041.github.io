@@ -1,8 +1,2 @@
-## Garrett Kocian
-### Full Stack Software Engineer
+## More to come soon, until then you can find links to LinkedIn and GitHub below.
 
-
-
-### Find Me Here
-[LinkedIn](https://www.linkedin.com/in/garrettkocian/)
-[Medium](https://medium.com/@gk1041)
